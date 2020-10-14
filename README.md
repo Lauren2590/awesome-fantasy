@@ -752,10 +752,6 @@ A great comedic mini-series with perfect casting wonderfully depicting the motif
 
 > A tale of the bungling of Armageddon features an angel, a demon, an eleven-year-old Antichrist, and a doom-saying witch.
 
-### [My Country: The New Age] (https://www.imdb.com/title/tt10850888/?ref_=tt_mv_close) [8.3]
-
-This show was amazing! It's an emotional and very inspiring story. A true adventure through the Joseon period. - [@Lauren2590] (https://github.com/Lauren2590)
-
 #### [The Originals](https://www.imdb.com/title/tt2632424) [8.2]
 
 The Originals may overwhelm casual viewers with its myriad twists and bevy of supernatural beings, but this a sleek, atmospheric Vampire Diaries spinoff with potential. - [@TREXXX27](https://github.com/TREXXX27)
